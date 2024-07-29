@@ -3,8 +3,8 @@
 
 I'm Tasneem
 
-I was born in Saudia Arabia
+I was born in Memphis, TN
 
-I like to skydive and ride tigers 
+I enjoy watching kdramas, being in nature, and working out 
 
 I want to be a traveling software engineer  
