@@ -5,6 +5,6 @@ I'm Tasneem
 
 I was born in Saudia Arabia
 
-I like to watch kdramas, workout, and go hiking
+I like to skydive and ride tigers 
 
 I want to be a traveling software engineer  
